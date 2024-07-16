@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @iniobong3emm
 - 👀 I’m interested in web development
-- 🌱 I’m currently learning data analytics 
+- 🌱 I’m currently a researcher and data entry specialist 
 - 💞️ I’m looking to collaborate on forming a team of digital expert with soft skills.
 - 📫 How to reach me ...
 
